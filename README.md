@@ -5,5 +5,5 @@ apa kalian temanku atau musuhku
 oh ya kan gw gada temen...
 ```
 
-another bad stroy from **mhmabotz**
-trough the ocean within a space you and me cannot be crash hahaha ```this is a bad endings```
+another bad story from **mhmabotz**
+trough the ocean within a space you and me cannot be crash hahaha ```this is a another bad endings```
