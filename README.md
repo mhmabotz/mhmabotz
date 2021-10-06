@@ -1,3 +1,9 @@
-Hello Im **MHMA BOTZ** Im a developer bot
-Im addicated for _HTML_ and _Javascript_ 
-Im try'd to listen and read how to make a better website
+```
+Lu siapa gw siapa kalian semua siapa????
+Kenapa cuman nomor dan id saja yang kulihat kalian siapa???
+apa kalian temanku atau musuhku
+oh ya kan gw gada temen...
+```
+
+another bad stroy from **mhmabotz**
+trough the ocean within a space you and me cannot be crash hahaha ```this is a bad endings```
